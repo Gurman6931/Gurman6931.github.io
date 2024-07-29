@@ -29,7 +29,7 @@
 
 My Activity Report of STUDENT INDUCTION PROGRAM BATCH 2024 in GURU NANAK DEV ENGINEERING COLLEGE.Please click the following link for my Activity Report
 
-[ACTIVITY REPORT] https://gurman6931.github.io/Gurman6932.github.io/
+[ACTIVITY REPORT] (https://gurman6931.github.io/Gurman6932.github.io/)
 
 I have also completed the **EXCEL COURSE** from GREAT LEARNING.
 ![image](https://github.com/user-attachments/assets/a9d56df6-25bd-4758-b5fe-c681bb5b048b)
