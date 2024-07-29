@@ -1,7 +1,7 @@
 # Gurman6931.github.io
 # PORTFOLIO OF GURMAN SINGH
 
-# DIVYANSH-GI.github.io
+
 # ACTIVITY REPORT OF INDUCTION PROGRAM
 
 | __DAY 1__ | (DATE -10.JULY.2024) .On the very first day of induction program. First we visited to gurudwara sahib of our college.All students were go to gurudwara sahib which is situated in our college . In the gurudwara sahib there was a kirtan and ardaas . Me and my friends enjoy our first day in the college. After ardaas there was an Refreshments. and then we all are go to our college auditorium and we get a chance to know a lot of about of the college. we get to know about the contribution of our college in various field of our country. we were lucky to get a chance to listen to diginatries invited by the college. 
