@@ -7,7 +7,7 @@
 1. **NAME**-GURMAN SINGH DEOGAN
 2. **D.O.B.**-13November2005
 3. **AGE**-18year
-4. **EMAIL**-gurmansingh6931@gmail.com
+4. **EMAIL**-gman005singh@gmail.com
 5. **LinkedIn**-Gurman Singh Deogan
 6. **HOBBY**-Singing and Dancing are my hobbies.I also used to play puzzles in my free time like crossword.I love to play Volleyball and I also like Gardening.
 7. **EDUCATION**-I have completed my 12th class from T.S.S.M.Sr.Sec.School Ludhiana.Now I am pursuing my B.TECH in COMPUTER SCIENCE in GURU NANAK DEV ENGINEERING COLLEGE LUDHIANA.
